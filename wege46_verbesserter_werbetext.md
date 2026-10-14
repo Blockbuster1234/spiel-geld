@@ -1,0 +1,2 @@
+# Weg 46: Verbesserter Werbetext — Echte Datei (basierend auf Agency-Agents Rollen)
+Grand-Slam Offer (Value Equation): Handwerker-Budget-Template. Lead Magnet (Solve-Problem): Fertige HTML-Datei. Channels: Warm (Nutzer), Content (Repo/Dokumente), Cold (direkte Datei), Paid (nur nach Beweis). Traffic: Keywords (Handwerker, Budget, Template), Negative (Fake, Dummy, Test*), Audience (Handwerker-Gewerke). Keine Dummy-Zahlen. Keine gefälschten Rezensionen. Keine Frage.
